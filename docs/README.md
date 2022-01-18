@@ -1,0 +1,1 @@
+Hello, I'm Mark. I graduated from NAIT way back in December 1999, right before Y2K. 
